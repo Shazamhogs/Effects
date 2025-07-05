@@ -1,4 +1,4 @@
-Video Referenced:
+Video Referenced: https://youtu.be/vSIisrJioOg
 
 Graadient Map (0-0----0-0)
 
